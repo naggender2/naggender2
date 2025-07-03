@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **naggender2@gmail.com**
 
-- ⚡ Fun fact **I am a foodie**
+- ⚡ Fun fact **I'm 5'11" — just one inch shy of 6 feet, which means I get all the tall jokes without the official tall status!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
