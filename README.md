@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **naggender2@gmail.com**
 
-- ⚡ Fun fact **My brain runs on caffeine and compiler errors. ☕**
+- ☕ Fun fact **My brain runs on caffeine and compiler errors.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
